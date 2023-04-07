@@ -4,7 +4,6 @@
 - 💞️ I’m currently focusing on Android, Swift, Kotlin, Flutter,React, React Native and Java Technologies. 
 - 📫 Proven strength and drive in group projects. Respected by both the customers and colleagues thanks to profound communication skills. 
 Believes generating high-impact results through following ethical standards and teamwork.
-Looking forward to working with creative teams on challenging projects.
 
 Mehmet Can Seyhan
 
