@@ -5,7 +5,7 @@
 - 📫 Proven strength and drive in group projects. Respected by both the customers and colleagues thanks to profound communication skills. 
 Believes generating high-impact results through following ethical standards and teamwork.
 
-Mehmet Can Seyhan
+Mehmet Can Seyhan (Udemig)
 
 <!---
 mehmetcanseyhan/mehmetcanseyhan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
